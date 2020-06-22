@@ -27,4 +27,4 @@ duhastaufdeinenkokaturndeinegeistigbehinderteschwestergefiktmucke.mp3 (K.I.Z) ğŸ
 
 ---
 [1][Anm]<br>
-Ein *Bekannter* mit einem Koi Karpfen Teich auf *seiner* Dachterrasse, irrelevant. Unterschiedliche Ligen mein Freund.
+Ein *Bekannter* mit einem Koi Karpfen Teich auf *seiner* Dachterrasse, irrelevant. Unterschiedliche Ligen, mein Freund.
