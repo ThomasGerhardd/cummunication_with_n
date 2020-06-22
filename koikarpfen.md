@@ -1,5 +1,5 @@
 Moin Herr<br/>
-koikarpfenteichdachbesitzermitminderwertigskeitsaufmerksamkeitsdefizit,
+koikarpfenteichdachbesitzermitminderwertigskeitsaufmerksamkeitsdefizit<sup>1</sup>,
 
 erreicht was Du Grünschnabel mit deinen **sexistischen** Verleumdungen bezwecken wolltest? Werd erwachsen, Kind. Das alles aus **Eifersucht** ..? *Was*? 😳
 
@@ -24,3 +24,5 @@ Wir Haben Noch Zeit (Feat. B-Tight) - Sido
 K.I.Z. - #next - Halbzeit.mp3 😉😱😈<br/>
 01<br/>
 duhastaufdeinenkokaturndeinegeistigbehinderteschwestergefiktmucke.mp3 (K.I.Z) 👋
+
+[1][Anm] Ein *Bekannter* mit einem Koi Karpfen Teich auf *seiner* Dachterrasse, irrelevant.
