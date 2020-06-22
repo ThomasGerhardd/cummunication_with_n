@@ -9,13 +9,13 @@ Nenn mich **broke**,<br>
 > "verbreite scheiße über mich,"<br>
 > "ganz egal ob es stinkt"<br>
 
-aber du hast #keinen #Plan von meine Kontobewegungen. 🦈<br>
+aber du hast *keinen Plan* von meine Kontobewegungen. 🦈<br>
 
-Bist du noch #eierloser, #planloser und #ängstlicher mit deinen #Zukunfts #Plänen?
+Bist du noch *eierloser*, *planloser* und *ängstlicher* mit deinen *Zukunfts #Plänen*?
 
 Glückwunsch! Vollidiot. 🤦‍♂️
 <br/><br/>
-#Komma #Klar - Samy Deluxe
+*Komma Klar* - Samy Deluxe
 
 K.I.Z. - 03 - Hurensohn RMX.mp3<br/>
 Küss Mir den Schwanz - K.I.Z<br/>
